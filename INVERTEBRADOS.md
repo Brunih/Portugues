@@ -1,0 +1,1 @@
+Os insetos são os únicos animais invertebrados capazes de voar, e por possuírem patas articuladas eles são classificados no filo dos artrópodes. Atualmente são conhecidas cerca de 900 mil espécies de insetos, sendo que a maioria é encontrada no ambiente terrestre.![[1de5e8f5359334f22e3f1d2961486efa.jpg]]
